@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sherylbee! 🐝
-- Liberal arts major turned tech geek with 6+ years of dev experience 
+- 🎭 Liberal arts major turned tech geek with 6+ years of dev experience 
 - 💞️ Always down to collaborate on projects geared toward accessibility, equity, philanthropy, education and lifestyle.
 
 
